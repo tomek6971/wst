@@ -5,10 +5,10 @@ C
 
 
 
-
-
-
-
+kaj 
+jak
+ajk
+kik
 
 
 
